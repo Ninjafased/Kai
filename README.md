@@ -1,2 +1,2 @@
-# Kai
+# Dupe
 PET SIM X DUPE SCRIPT
